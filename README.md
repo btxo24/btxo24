@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @btxo24 
+- 👋 Hi, I’m @btxo24 (George)
 - 👀 I’m interested in Art, Music, and Games
 - 🌱 I’m currently learning Networking System
 - 💞️ I’m looking to collaborate on a NFT project 
