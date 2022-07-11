@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @btxo24 or you can call me George
-- 👀 I’m interested in Art, Music, and Games
+- 👀 Interested in Art, Music, and Games
 - 🌱 I’m currently learning Networking System and Web development
 - 💞️ I’m looking to collaborate on a NFT project 
 - 📫 Reach me via discord: A COW #7022
